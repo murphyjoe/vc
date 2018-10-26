@@ -25,4 +25,9 @@ I really like @rjhogue idea of folks asking questions ahead of time even if they
 
 >I speak of radical hospitality today because there is a world out there that needs home, that needs community, and I want us to stretch spiritually, to stretch ourselves open. I know that when we take the risk—yes, of course, we’ll blunder, we’ll make mistakes—believe me, I have blundered more than once—but when we take the risk, our lives will grow so much richer and deeper because we have extended ourselves. Our creativity will blossom, for we will not be stuck with our old assumptions, our narrow ways of perceiving reality. Our world will grow wider and softer and more trusting.
     
+1. From *Radical Presence: Teaching as Contemplative Practice* by Mary Rose O'Reilley
+
+>Hospitality defines a space for the visitor - the student - to be herself, because she is received graciously. (p.8)
+>Hospitality calls me to consider the singularity of each person, the diversity of needs. The discipline of presence requires me to *be there*, with my senses focused on the group at hand, listening rather than thinking about what I'm going to say - observing the students, the texts, and the sensory world of the classroom. (...) Hospitality... implies reception of the challenging and unfamiliar. (p.9)
+
 1.
